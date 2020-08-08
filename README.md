@@ -1,4 +1,5 @@
-# Johnson Subedi®
+
+# JOHNSON SUBEDI
 ### I do not fear of computers. I fear the lack of them.
 
 #### Aribba!!
