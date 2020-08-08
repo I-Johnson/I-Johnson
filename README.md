@@ -1,5 +1,5 @@
 ### Johnson Subedi🛐
-###I do not fear of computers. I fear the lack of them.
+### I do not fear of computers. I fear the lack of them.
 
 Aribba!!
 I am Johnson. I am currently learning Python. 
