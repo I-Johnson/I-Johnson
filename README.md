@@ -9,7 +9,7 @@ I an fervent learner and hope to  aquire the best knowledge out of the world and
 
 ❤AI
 
-# Here's how you can reach me:
+## Here's how you can reach me:
 [LinkedIn](https://www.linkedin.com/in/johnson-subedi-154a861aa/) <br>
 [Github](https://github.com/I-Johnson) <br>
 [Instagram](https://www.instagram.com/subedi_johnson/)<br>
