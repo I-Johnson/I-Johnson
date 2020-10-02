@@ -14,6 +14,7 @@ I an fervent learner and hope to  aquire the best knowledge out of the world and
 [LinkedIn](https://www.linkedin.com/in/johnson-subedi-154a861aa/) <br>
 [Github](https://github.com/I-Johnson) <br>
 [Instagram](https://www.instagram.com/subedi_johnson/)<br>
+[Johnson.com.np](https://www.johnson.com.np)
 <br></br>
 <p> 
   <a href = "https://twitter.com/JohnsonSubedi">
