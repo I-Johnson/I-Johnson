@@ -6,7 +6,7 @@
 I am Johnson. I love playing with Computers. 
 
 
-I an fervent learner and hope to  aquire the best knowledge out of the world and contribute myself to elementry learners.
+I am a fervent learner. I hope to acquire the best knowledge in the world and contribute to elementary learners.
 
 ❤AI
 
